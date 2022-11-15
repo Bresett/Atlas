@@ -1,2 +1,2 @@
 # Atlas
-Atlas Flexed - The Reclusive is not in our nature.  
+Atlas Flexed - Reclusive is not in our nature.  
